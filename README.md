@@ -1,4 +1,4 @@
-### Hi there uwu 🦊
+### Hi 🥝
 
 <!--
 **kruniak/kruniak** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
